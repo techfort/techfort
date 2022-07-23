@@ -1,7 +1,7 @@
 [![trophy](https://github-profile-trophy.vercel.app/?username=ryo-ma)](https://github.com/ryo-ma/github-profile-trophy)
 
 
-### Benvenuti da / Welcome to / Velkommen til Techfort's profile
+### Benvenuti al / Welcome to / Velkommen til Techfort's profile
 
 * Cloud / Data Architect 
 * ML/AI/Deep Learning Enthusiast
