@@ -7,7 +7,7 @@
 * ML/AI/Deep Learning Enthusiast
 * Unwavering Heavy Metal [faithful](https://open.spotify.com/artist/31R0Xxb1rS7j4d0jmNIBdl), Guitarist / Singer / Wannabe drummmer 
 * Ancient and Medieval History enthusiast
-* RPGs, Fantasy, and any other subject used in Stranger Things, that was just us in the 1908s.
+* RPGs, Fantasy, Sci-fi
 * Wanna-be [fantasy painter](https://www.artstation.com/deathmasterart)
 
 <!--
